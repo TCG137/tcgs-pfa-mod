@@ -1,4 +1,2 @@
-pleze credit wen useng my usless mod:
-MIDI Player modded by TheCatgamer137
-
-Goto Releases For the other betas :3
+welcome to the useless pfa mod and if you download it you get one subscriber on youtube (not really) but if you really did you get a cookie 🍪.
+did i mention this was a useless mod.
